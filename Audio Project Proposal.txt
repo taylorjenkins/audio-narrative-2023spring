@@ -1,0 +1,2 @@
+﻿So far, I have included the background noises as my character realizes she’s late for a meeting and leaves her apartment. I included the alarm buzzing, footsteps, keys, elevator noises and car horns indicating traffic. 
+I also added in the voice recordings, but need to move them around and edit them still.
