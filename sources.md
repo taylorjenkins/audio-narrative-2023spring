@@ -5,3 +5,4 @@ Bruno.auzet. “Woman heel in airport.” WAV file, created 25 Sep. 2020.
 Jamie7001. “Elevator door and ding.” WAV file, created 15 Jul. 2019.
 Harmless. “Swing Lynn.” MP3 file, created 14 Aug. 2012.
 All other audio recorded by me.
+[Swing Lynn](https://soundcloud.com/discover/sets/personalized-tracks::user-592858110:1080231016) 
