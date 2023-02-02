@@ -1,8 +1,8 @@
-Vialgames. Recording of a car horn. MP3 file, created 29 Dec. 2021. 
-Natemarler. “City highway busy cars pulling out.” WAV file, created 3 Mar. 2016.
-Bruno.auzet. “Woman heel in airport.” WAV file, created 25 Sep. 2020.
-2hear. Recording of car horns. WAV file, created 27 Jul. 2015.
-Jamie7001. “Elevator door and ding.” WAV file, created 15 Jul. 2019.
-Harmless. “Swing Lynn.” MP3 file, created 14 Aug. 2012.
-All other audio recorded by me.
-[Swing Lynn](https://soundcloud.com/discover/sets/personalized-tracks::user-592858110:1080231016) 
+[Car Horn](https://freesound.org/people/vialgames/sounds/613142/) by [vialgames](https://freesound.org/people/vialgames/) licensed under [Creative Commons 0 License](http://creativecommons.org/publicdomain/zero/1.0/)
+[City highway busy cars pulling out](https://freesound.org/people/natemarler/sounds/338675/) by [natemarler](https://freesound.org/people/natemarler/) licensed under [Noncommercial 3.0 License](http://creativecommons.org/licenses/by-nc/3.0/)
+[Woman heel in airport](https://freesound.org/people/bruno.auzet/sounds/536591/) by [bruno.auzet](https://freesound.org/people/bruno.auzet/) licensed under the [Creative Commons 0 License](http://creativecommons.org/publicdomain/zero/1.0/)
+[Car Horns](https://freesound.org/people/2hear/sounds/317533/) by [2hear](https://freesound.org/people/2hear/) licensed under the [Noncommercial 3.0 License](http://creativecommons.org/licenses/by-nc/3.0/a)
+[elevator door and ding](https://freesound.org/people/jamie7001/sounds/476800/) by [jamie7001](https://freesound.org/people/jamie7001/) licensed under the [Creative Commons 0 License](http://creativecommons.org/publicdomain/zero/1.0/)
+[Car- Pulling Away](https://freesound.org/people/manychefsbroth/sounds/151876/#) by [manychefsbroth](https://freesound.org/people/manychefsbroth/) licensed under the [Attribution 3.0 License](http://creativecommons.org/licenses/by/3.0/)
+Background Music [Twin Cabins -Swing Lynn Cover](https://soundcloud.com/paul-parce/nautical-dreamer-demo?si=e3185fa83f7c4715b8141de7bbbac25b&utm_source=clipboard&utm_medium=text&utm_campaign=social_sharing) by [Paul Parce](https://soundcloud.com/paul-parcel) licensed under the [Creative Commons License](http://creativecommons.org/licenses/by-nc-sa/3.0/) is free to use.
+All other audio recorded by myself. 
